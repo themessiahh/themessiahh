@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @themessiahh
+- 👀 I’m interested in football
+- 😄 Pronouns: he/he/he
